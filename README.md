@@ -49,7 +49,7 @@ This is the commercial component of the launch, leveraging media attention for f
 * **License:** MIT License (Full open-source transparency).
 * **Commitment:** **The founder completed this technical blueprint while unhoused, proving absolute resilience.**
 
-**Contact:** Direct Inquiries to: [james.lambert.ai@proton.me](mailto:james.lambert.ai@proton.me)
+**Contact:** Direct Inquiries to: [chosen06021957@gmail.com](mailto:chosen06021957@gmail.com)
 
 ---
 
